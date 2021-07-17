@@ -1,2 +1,12 @@
-# gaperland-medische-terroristen
-2002-2028
+---------------------------
+| dutch-medical-terrorism |
+---------------------------
+
+
+# gaper
+https://en.wikipedia.org/wiki/Gaper
+
+# zorgverzejering
+https://nl.wikipedia.org/wiki/Zorgverzekering_(Nederland)
+
+bemoeigurus at work © 2002-2028
